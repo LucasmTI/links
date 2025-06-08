@@ -5,7 +5,7 @@ https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/2
 https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/3.mp4
 https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/4.mp4
 https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/5.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/6.mp4
+https://lightspeedst.net/s3/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/6.mp4
 https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/7.mp4
 https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/8.mp4
 https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/9.mp4
