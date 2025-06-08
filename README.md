@@ -1,18 +1,4 @@
 # links
 links
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/1.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/2.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/3.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/4.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/5.mp4
-https://lightspeedst.net/s3/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/6.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/7.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/8.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/9.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/10.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/11.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/12.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/13.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/14.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/15.mp4
-https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/16.mp4
+https://rr5---sn-b8u-8pmz.googlevideo.com/videoplayback?expire=1749455121&ei=kSBGaLy_DP67xtYPjPe4sQo&ip=2804:1b3:9102:bb24:c387:4af3:b176:2c7c&id=4706efbb04bb37ef&itag=18&source=blogger&xpc=Egho7Zf3LnoBAQ%3D%3D&met=1749426321,&mh=13&mm=31&mn=sn-b8u-8pmz&ms=au&mv=m&mvi=5&pl=42&rms=au,au&susc=bl&eaua=OfoyTv86HTM&mime=video/mp4&vprv=1&rqh=1&dur=1433.808&lmt=1614138867748770&mt=1749425837&txp=1318224&sparams=expire,ei,ip,id,itag,source,xpc,susc,eaua,mime,vprv,rqh,dur,lmt&sig=AJfQdSswRAIgFyf8aZbyBtLvOXioYBXjQ5_bOfhdTR0-gboR5nq6lPgCIHjq7K-dTu5H32hBs3OgE9hKhjRi_gcuvGz_-ZAUqnz0&lsparams=met,mh,mm,mn,ms,mv,mvi,pl,rms&lsig=APaTxxMwRQIgH7FbBVskByH5BR63emxh_yAiKCpk99R77b1hMtLs_i0CIQDP21C1XFU0YtCoDi0LiM65qt9scT4P4z5sfvVcBCdCXA%3D%3D&cpn=s4boV7HlRnaInuC-&c=WEB_EMBEDDED_PLAYER&cver=1.20250603.21.00
+
