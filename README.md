@@ -1,4 +1,16 @@
 # links
 links
-https://rr2---sn-b8u-8pmz.googlevideo.com/videoplayback?expire=1749455495&ei=BiJGaKi3PPWyy_sP4L6-0Qo&ip=2804:1b3:9102:bb24:c387:4af3:b176:2c7c&id=3fe477d5ecf5d22f&itag=18&source=blogger&xpc=Egho7Zf3LnoBAQ%3D%3D&met=1749426694,&mh=Sx&mm=31&mn=sn-b8u-8pmz&ms=au&mv=m&mvi=2&pl=42&rms=au,au&susc=bl&eaua=OfoyTv86HTM&mime=video/mp4&vprv=1&rqh=1&dur=1434.737&lmt=1614137178463874&mt=1749426090&txp=1318224&sparams=expire,ei,ip,id,itag,source,xpc,susc,eaua,mime,vprv,rqh,dur,lmt&sig=AJfQdSswRQIhAOLPb1VDa0E9RErYeM-GNXCfg63w9hjfFfCNSYcBvls0AiAOBsLnoV2GTVCp83iYKU0beywT42cHHM4_kYv7EFg29A%3D%3D&lsparams=met,mh,mm,mn,ms,mv,mvi,pl,rms&lsig=APaTxxMwRgIhAMTw6MkVZ3jYNVzmVuDlO0a5_3vduzVqD6rP9AtKwkEBAiEAvvshu9hQ74V2IId-oZnC99UMwVZcxXGDysxXCzA9MAI%3D&cpn=WLxRLrlPv4q6s5p8&c=WEB_EMBEDDED_PLAYER&cver=1.20250603.21.00
-
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/3.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/4.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/5.mp4
+https://lightspeedst.net/s3/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/6.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/7.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/8.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/9.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/10.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/11.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/12.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/13.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/14.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/15.mp4
+https://lightspeedst.net/s2/mp4/shingeki-no-kyojin-the-final-season-dublado/hd/16.mp4
